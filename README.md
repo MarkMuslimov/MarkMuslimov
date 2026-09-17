@@ -1,4 +1,4 @@
-## Hey there! ♬
+## Hey there! 🎵
 
 I'm Mark, an aspiring programmer based in Germany.
 
